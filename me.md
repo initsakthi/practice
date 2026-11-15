@@ -1,0 +1,1 @@
+hi this is sakthivel im currently doing intern at small fintech startup called platform3solutions thats all about me 
